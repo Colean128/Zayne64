@@ -1,4 +1,4 @@
-### I AM SUPER EVEOLVED THE GAY PONG POJNG JOIEAR
+### I make things that I hope are useful or fun
 ## Projects I'm working on
 None at the moment
 
